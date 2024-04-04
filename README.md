@@ -10,7 +10,7 @@ Auf der Seite und hinten sieht man noch Spuren eines Aufklebers "Club De Vacance
 
 Nach dem Verkauf durch die Brunette, war der Bus im Besitz eines Mannes in Neuenburg und gelangte dann 2007 über einen Zwischenverkäufer zu mir.
 
-Weitere Bilder: https://photos.app.goo.gl/wHWmevQML13KAcRx9
+Weitere Bilder: [https://photos.app.goo.gl/wHWmevQML13KAcRx9](https://photos.app.goo.gl/wHWmevQML13KAcRx9)
 
 
 ## Ausstattung
